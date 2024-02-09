@@ -1,1 +1,3 @@
-# thegamer
+[TheGamer](https://www.thegamer.com/) is a gaming site with a different spin on things, and we break some of the biggest stories around. We wrote an extensive expose on workplace abuse at Techland, an oral history on Dragon Age: Origins, and we were the first to report that PlayStation was moving to shut the Vita store down. For all your news, views, and reviews, (and guides, but that doesn’t rhyme), you should bookmark TheGamer. That’s TheGamer, no spaces.
+
+Here, you’ll find all the lovely staff of TheGamer, and links to their Twitter pages, as proof that their bad opinions aren’t just contained to this website - they’re out in the world too. Click on their names to be taken to their Author Pages. For more information on TheGamer, check out our press kit.
